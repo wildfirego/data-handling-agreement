@@ -16,21 +16,9 @@ THIS AGREEMENT made as of the _ _ day of _ _ _ 20 _ , between SAMANVAY WEB PVT. 
 
 IN WITNESS WHEREOF the Employer has caused this agreement to be executed by its duly authorised people and the Employee has set her/their/his hand as of the date first above written.  
 
-SIGNED, SEALED AND DELIVERED in the presence of:  
-
-
-
-[Name of employee]
-
-
-
-[Signature of Employee]
-
-
-
-[Name of Employer Rep]
-
-
-
-[Signature of Employer Rep]
+SIGNED, SEALED AND DELIVERED in the presence of:          
+[Name of employee]          
+[Signature of Employee]          
+[Name of Employer Rep]          
+[Signature of Employer Rep]  
 SAMANVAY WEB PVT. LTD.
